@@ -1,6 +1,6 @@
 - 👋 Hi, I’m new user @jimsingwillington
 - 👀 I’m interested in IT, Concole games, Electronic Repair
-- 🌱 I’m currently learning MSXIO on Ps2 , etc
+- 🌱 I’m currently learning MX4SIO on Ps2 , etc
 - 💞️ I’m looking to collaborate on similar projects
 - 📫 How to reach me email: Jimsingwillington@yahoo.com
 
